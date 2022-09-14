@@ -1,5 +1,5 @@
-Get To Know Us
-
+<h2>Get To Know Us</h2>
+ 
 Making Trips A More Fulfilling And Memorable Experience
 Trips and Outings are a time when you rekindle and rejoice by giving yourself a break from all the chaos of your busy and hectic life. So, it’s essential that the experiences on your trips are memorable and fulfilling. We help you create such experiences by designing the most amazing tours and travel packages for an experiential trip.
 
